@@ -1,2 +1,1 @@
 UwU
-yamete kudasai Aaaahh
